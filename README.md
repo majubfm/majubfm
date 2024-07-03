@@ -6,7 +6,7 @@
 - Gosto de assitir meu time jogar
 - Sou flamenguista
 - Adoro cachorros
-- Meu sonho é morar na Espanha
+- Meu sonho é conhecer a Italia
 
 <!---
 majubfm/majubfm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
