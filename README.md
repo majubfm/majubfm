@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/d41bcce8-afff-476f-94e9-2766b6e4520c)- Oi eu sou a Maria julia
+[image](https://github.com/user-attachments/assets/d41bcce8-afff-476f-94e9-2766b6e4520c)- Oi eu sou a Maria julia
 - Estou cursando o novo ensino médio 
 - 🌐Estudo inglês 
 - ❤️Sou flamenguista
